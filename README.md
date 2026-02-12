@@ -39,7 +39,7 @@ For any queries contact
 * Shashi M N - [LinkedIn](https://www.linkedin.com/in/shashi-mn-6a9a93385)
 * Sharath Suresh Gouda - [LinkedIn](https://www.linkedin.com/in/tejasn1906)
 * Tejas N - [LinkedIn](https://www.linkedin.com/in/tejasn1906)
-* Shashi M N - [LinkedIn](https://www.linkedin.com/in/shashi-mn-6a9a93385)
+* Muktha N - [LinkedIn](https://www.linkedin.com/in/mukthan)
 * Monika S - [LinkedIn](https://www.linkedin.com/in/monika-s-294559275)
 * Manasa G Nadiger - [LinkedIn](https://www.linkedin.com/in/manasa-nadiger-45b038306)
 * Tejaswini Mali - [LinkedIn](https://www.linkedin.com/in/tejaswini-mali-032510384)
